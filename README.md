@@ -1,3 +1,3 @@
 <div align="center">
 
-##### fayne ㅤit - any ㅤ[+ ==](https://zenless-zone-zero.fandom.com/wiki/Phaethon) <br> reworking and redoing links... <br> sowwy... @/duxlucens kawaii <br> #1 remie & phoenix fan (truth) <br> [atabook](https://aod.atabook.org)
+##### fayne ㅤitㅤ any ㅤ[𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃](https://zenless-zone-zero.fandom.com/wiki/Phaethon) <br> reworking & redoing links... <br> sawwy. @/duxlucens kawaii <br> #1 remielle & phoenix fan <br> [atabook](https://aod.atabook.org)
